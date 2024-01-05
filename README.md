@@ -1,0 +1,2 @@
+# amaric
+Amaric repository
