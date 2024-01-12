@@ -11,7 +11,7 @@ môhôlwelmhlweôhmlôe
 ônkmerhwôlmhelwômôlw
 gkwekglewhlkwlnkhe
 lknhwehwehklnweklnhe
-gnjwewejhwen
+gnjwewejhwenglweômhwôl
 hôkwmôewlmhwlôme
 ihwehioewhewij
 gknewlknklwehkweknl
