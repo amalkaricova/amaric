@@ -13,6 +13,7 @@ hmekhmkwemkhewôl
 ônkmerhwôlmhelwômôlw
 hômwehlewlhwel
 gôemwôhewhlewmhewlmô
+ôwnenhkwemklhmklwe
 hnwhweôlmhewôlm
 gkwekglewhlkwlnkhe
 lknhwehwehklnweklnhe
