@@ -14,6 +14,7 @@ hmkwekhwhleôwhmlôwe
 hewômlhwemlhôl
 ôhnwekhlnewglhkwenkl
 hlmwehwehweômhmlw
+hôknwenhkwe
 hôlmwelhmwehôlmwemlô
 fgcgfghjfgfn
 hwôehewkhwlkne
