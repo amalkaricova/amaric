@@ -5,6 +5,7 @@ jrejrejrejre
 hmkweklwekhnlwe
 hewhwelhmôwe
 hkrmhkewmlhôew
+hlknwelkhewk
 hmkwhkewnlh
 hôlwemhôewhmlweôl
 hmwehewmôhlewl
