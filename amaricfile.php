@@ -12,6 +12,7 @@ hewhwelhmôwe
 wenhklwhkwel
 hkrmhkewmlhôew
 hlknwelkhewk
+hnwehlekwhnklwe
 hmkwhkewnlh
 hôlwemhôewhmlweôl
 hmwehewmôhlewl
