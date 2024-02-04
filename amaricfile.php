@@ -7,6 +7,7 @@ knhlwekhekwd
 hkwhwelhnweklhew
 hwnehkwelnhewkl
 hewhwelhmôwe
+wenhklwhkwel
 hkrmhkewmlhôew
 hlknwelkhewk
 hmkwhkewnlh
