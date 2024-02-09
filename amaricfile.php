@@ -15,6 +15,7 @@ wôlehwmôhmlwe
 hmkweklwekhnlwe
 knhlwekhekwd
 hôknwlhewnhwe
+hnjtrjetjer
 hlknwehknlwel
 hkwhwelhnweklhew
 hklwnekhwlehnwle
