@@ -2,7 +2,8 @@ hnkwelkhwmhwôehmlôwe
 lwmehweôl
 ôkhnwklhwekhnwe
 h§wmehlwôew
-helôwmôhwmlew
+helôwmôhwmle
+ôlhmwelhlwmehmlôwew
 hôlmwehlôewm
 hkwnehwkelhnwenklhe
 hôwmôhwelmôhlewô
