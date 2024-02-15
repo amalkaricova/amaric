@@ -6,6 +6,7 @@ hôwehlewmhlôwôle
 hôwehwelmhwle
 lgômhwelhwlehwme
 hôlemwhlôwemhew
+hôewmhklwnhle
 hlmwlhôwemhw
 h§lwmehôlwem
 ôlewmhwelôhwe
